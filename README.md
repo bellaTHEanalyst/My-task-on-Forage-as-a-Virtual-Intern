@@ -1,1 +1,1 @@
-# TATA-virtual-internshio-TASK-on-FORAGE
+# TATA-virtual-internship-TASK-on-FORAGE
